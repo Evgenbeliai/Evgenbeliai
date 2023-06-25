@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Evgenbeliai
-- 👀 I’m interested in Programming and psychology
-- Bay
-
+- 👀 I’m interested in Programming and psycholog
+- Bayyyyyyyyyyyyyyyyyyyyyyy
+- sdmaskdnmksamda
